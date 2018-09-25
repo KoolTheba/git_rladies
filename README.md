@@ -84,6 +84,8 @@ Esta es la lista de asistentes al taller:
 
 35- ...
 
+37- Theba (otra vez)
+
 Muchas gracias a todas, esperamos que os haya gustado y practicar mucho!!!
 
 > Agradecimientos:
